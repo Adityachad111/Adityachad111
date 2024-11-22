@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on Hackclub .
 - 📫 How to reach me : Everyone can reach me on adityachamola111@gmail.com . 
 - 😄 Pronouns: Allegiant .
-- ⚡ Fun fact:I am shy but a comedy guy .
+- ⚡ Fun fact:I am so shy but a comedy guy .
 
 <!---
 Adityachad111/Adityachad111 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
